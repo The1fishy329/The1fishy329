@@ -1,5 +1,5 @@
 - Hi, I’m @The1fishy329
-- I’m interested in: making video games, 3d models, anime, manga, working out, I also like playing video games.
+- I’m interested in: making video games, 3d models, anime, manga, working out, and I also like to spend my time playing video games.
 - I’m currently learning: Python, Unreal Engine, C#, and JavaScript. 
 - I’m looking to collaborate on: A backrooms video game, An action anime, and A horror ocean video game.
 - How to reach me: Discord: Thefishy329, Email: Thefishy329@gmail.com
